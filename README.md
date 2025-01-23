@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @black-angel17
-- 👀 I’m only love pc
+- 👀 I’m love Science
 - 🌱 I’m currently learning  hacking and AI
 
 - 💞️ I’m looking to friends to cowork
